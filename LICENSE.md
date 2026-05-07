@@ -1,4 +1,4 @@
-
+best Script for murderers vs sheriffs 2 is the best murderers vs sheriffs 2 Script, featuring speed and auto-collect. Safe and powerful for all your
 
 
 
